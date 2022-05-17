@@ -1,1 +1,1 @@
-# sebagai saranan penumpulan laporan akhir pbf
+# sebagai sarana penumpulan laporan akhir pbf
